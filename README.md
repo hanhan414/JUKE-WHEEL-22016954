@@ -1,3 +1,3 @@
 # JUKE-WHEEL-22016954
-Link of presentation vedio:   
+Link of presentation video:   
 Link of Weekly Blog:  

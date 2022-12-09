@@ -1,3 +1,4 @@
 # JUKE-WHEEL-22016954
-Link of presentation video:   
-Link of Weekly Blog:  
+Link of presentation video:   https://www.bilibili.com/https://www.bilibili.com/
+  
+Link of weekly Blog:  

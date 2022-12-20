@@ -3,6 +3,6 @@ Hope you can find all you want from this repository. Since the submission contai
 
 It contains the presentation video, PDF, weekly Blog, Circuit diagram, all the codes.
 
-Link of presentation video:   https://youtu.be/LU1OU6uC_o8
+Link of presentation video:   https://youtu.be/lA0DEAcZP84
   
 Link of weekly Blog:  https://docs.google.com/document/
